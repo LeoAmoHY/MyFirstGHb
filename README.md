@@ -1,3 +1,3 @@
 # MyFirstGHb
 My spiritual world home.
-No matter how small, you must be close to you.
+Learn to go against the water, do not enter.
